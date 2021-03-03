@@ -1,2 +1,2 @@
-# Xent3r
-Hacker I am, and a Marvel lover.....
+#Xtreme Kraken
+Nothin to read here. Go brrrrr.
